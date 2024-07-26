@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @AAX-0
 - 👀 I’m interested in learning code :)
 - 🌱 I’m currently learning computational linguistics :)
-- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me acexing0@gmail.com please.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: 
